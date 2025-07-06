@@ -29,7 +29,7 @@
 
 ## 📫 Como me encontrar
 - Instagram: [@jhowzzz_](https://instagram.com/jhowzzz_)
-
+- Linkedin: https://www.linkedin.com/in/jhonata-henrique-costa-partica-%E2%80%8E-74063130a/
 ---
 
 > Obrigado por visitar meu perfil! Sempre estudando, errando, aprendendo e melhorando.
