@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou o Jhow!
+# 👋 Opa! Eu sou o Jhow!
 
 🎓 Estudante de **Análise e Desenvolvimento de Sistemas** na PUCPR  
 💻 Apaixonado por tecnologia, aprendendo **Java**, **Python** e lógica de programação  
